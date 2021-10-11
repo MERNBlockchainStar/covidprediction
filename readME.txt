@@ -12,8 +12,3 @@ run following command.
 
 
 
-************
-live:.cid.63b94d06de716d1f robert breed. austria
-live:.cid.9545882821edbf85 moh
-live:hirzy5 mohd : malaysia
-ubongata  Duke. unite kingdom
